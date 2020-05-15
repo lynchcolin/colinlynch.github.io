@@ -1,1 +1,0 @@
-# lynchcolin.github.io
